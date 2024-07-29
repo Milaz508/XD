@@ -1,2 +1,1 @@
-# XD
-XD
+BAŞ ET XD :D
